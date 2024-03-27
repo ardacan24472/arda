@@ -1,0 +1,1 @@
+kendinix icin bilader icin
